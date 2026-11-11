@@ -10,12 +10,12 @@
 <br>
 <br>
 
-$\color{#787163}{\texttt{**VAN**ㅤ⸝ㅤDUTCH}}$ </br> <sup>he  ㅤ 、  ㅤesp + eng 
+$\color{#787163}{\texttt{VANㅤ⸝ㅤDUTCH}}$ </br> <sup>he  ㅤ 、  ㅤesp + eng 
 
 <img src="https://file.garden/ar8aKenXG3rNvzBN/simon/BOOK.png" height="50">
 
-$\color{#787163}{\text{**SO DON'T FORGET, AND DON'T REMEMBER**}}$ <br>
-$\color{#787163}{\text{**SINCE NOTHING MAKES SENSE.**}}$
+$\color{#787163}{\text{SO DON'T FORGET, AND DON'T REMEMBER}}$ <br>
+$\color{#787163}{\text{SINCE NOTHING MAKES SENSE.}}$
 
 
 <br>
